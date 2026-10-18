@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Mohamed Chaieb
 
-🎓 21 years old Computer Science student (LGLSI2) from Tunisia 🇹🇳
+🎓 21 years old Computer Science student from Tunisia 🇹🇳
 
 ## 🚀 About Me
 
